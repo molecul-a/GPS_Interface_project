@@ -1,4 +1,4 @@
-Certainly! Here's a description of the project:
+Here's a description of the project:
 
 ---
 
